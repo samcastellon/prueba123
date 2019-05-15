@@ -1,2 +1,1 @@
-segundo mensaje# compartido
- x2
+sddfjbdslfandf
